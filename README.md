@@ -12,7 +12,8 @@ ut_66_0](https://github.com/longbui23/COVID-19/assets/112489957/dbc3f29e-81b6-4d
 ![output_66_2](https://github.com/longbui23/COVID-19/assets/112489957/73529e33-ac5f-4adc-b779-104e57bbe302)
 ![output_66_3](https://github.com/longbui23/COVID-19/assets/112489957/284ad364-728f-46ab-a87a-6c8eda4c7959)
 ![output_66_4](https://github.com/longbui23/COVID-19/assets/112489957/245cef65-f50a-4de9-9aad-e9b9f9d2fa79)
-![output_66_5](https://github.com/longbui23/COVID-19/assets/112489957/98bbd8fb-82dd-4045-80b6-c74![output_66_6](https://github.com/longbui23/COVID-19/assets/112489957/61caadba-85cb-4f49-85a8-59c8cf2931b4)
+![output_66_5](https://github.com/longbui23/COVID-19/assets/112489957/98bbd8fb-82dd-4045-80b6-c74).
+![output_66_6](https://github.com/longbui23/COVID-19/assets/112489957/61caadba-85cb-4f49-85a8-59c8cf2931b4)
 e46862114)![output_67_0](https://github.com/longbui23/COVID-19/assets/112489957/2f7f1892-c2b3-40d0-b869-521787b822ac)
 ![output_67_0](https://github.com/longbui23/COVID-19/assets/112489957/d3d36a27-0294-45ae-a8a6-e332e5f38309)
 ![output_67_1](https://github.com/longbui23/COVID-19/assets/112489957/6f014ca2-260b-4a66-9896-91bfc4293af4)
